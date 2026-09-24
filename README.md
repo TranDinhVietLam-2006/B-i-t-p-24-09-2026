@@ -1,2 +1,3 @@
-![Screenshot 2026-09-24 145126.png]([https://github.com/...](https://github.com/TranDinhVietLam-2006/B-i-t-p-24-09-2026/edit/main/README.md))
+<img width="1768" height="1282" alt="login" src="https://github.com/user-attachments/assets/bef9c47c-a823-48a8-a22d-16338bc82b6c" />
+
 
