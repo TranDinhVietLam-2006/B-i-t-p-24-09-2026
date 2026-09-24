@@ -1,1 +1,1 @@
-# B-i-t-p-24-09-2026
+![Uploading Screenshot 2026-09-24 145126.png…]()
